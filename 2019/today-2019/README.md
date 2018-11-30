@@ -1,6 +1,19 @@
 today 开发者大会  2019
 
+
+https://volafile.org/r/qtpvjw0r
+
 todaypro  todo留住用户
+
+
+https://volafile.org   用于开幕式
+
+build anything with Google ---->>>>>   build anything with today
+
+
+从换手机说起，无人监控    任务提醒
+
+重提 PicSeeOne 图片business  
 
 一。
 today 加入电影和天气预告和新书，豆瓣同城活动内容 v2ex创意新内容  自动提醒
@@ -61,6 +74,7 @@ todo 中期期限  条目的最后期限
 
 八。
 做精美的硬件
+衣橱应用
 
 		
 九。
@@ -71,4 +85,18 @@ todo 中期期限  条目的最后期限
 
 十一。
 百度语音  一键启动  远场小说写作
+
+十二。
+应用之写作灵感   只言片语
+
+
+十三。
+有空就推， 片段型时间利用
+
+十四。
+达人计划    谈资计划
+
+
+十五。
+合作伙伴  用codepen的3d标签形式展示
 
